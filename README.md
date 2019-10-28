@@ -4,4 +4,8 @@
 
 안녕하세요
 
+i dont understand!!!!
+
+Chinese please!
+
 你好！！！！
